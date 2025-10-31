@@ -1,4 +1,4 @@
-　　　　　　, $\LARGE\textcolor{#DEC596}{\textsf{Whatever you do,}}$ $\LARGE\textcolor{#ECE099}{\textsf{at the crossroads,}}$ $\LARGE\textcolor{#CFBA6D}{\textsf{DON'T TURN LEFT.}}$
+　　　　　　　, $\LARGE\textcolor{#DEC596}{\textsf{Whatever you do,}}$ $\LARGE\textcolor{#ECE099}{\textsf{at the crossroads,}}$ $\LARGE\textcolor{#CFBA6D}{\textsf{DON'T TURN LEFT.}}$
 　　　　　　　　　　<img width="739" height="421" alt="yellow arg" src="https://github.com/user-attachments/assets/b06ef950-8b07-40ad-81e3-0111db9b3401" />
 
 
