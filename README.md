@@ -1,10 +1,16 @@
-![Cipher Banner   _ᐠ｡‸｡ᐟ_   !!  hsr](https://github.com/user-attachments/assets/cd651d91-6496-4047-98ae-226bd4bf588a)
+　　　　　　, $\LARGE\textcolor{#DEC596}{\textsf{Whatever you do,}}$ $\LARGE\textcolor{#ECE099}{\textsf{at the crossroads,}}$ $\LARGE\textcolor{#CFBA6D}{\textsf{DON'T TURN LEFT.}}$
+　　　　　　　　　　<img width="739" height="421" alt="yellow arg" src="https://github.com/user-attachments/assets/b06ef950-8b07-40ad-81e3-0111db9b3401" />
 
 
- I am hoyoverse BIGGEST fan 　 　　　　✧ 　 　　 　Discord user in strawpage ! (also my user here)　 　<img width="73" height="63" alt="4d3bfe10-df70-4afa-abc1-bc45d77068ff" src="https://github.com/user-attachments/assets/e837ef2d-397a-446f-8e5f-183e24424a1b" />
 
 
-<img width="73" height="68" alt="☆Cipher (2)" src="https://github.com/user-attachments/assets/b43a1007-7d6b-4d3b-b0a0-f776d4ca6af3" /> COUGH check my strawpage to know more about me ★ !! https://s6xur1ty.straw.page/
+ I am hoyoverse BIGGEST fan 　 　　　　✧ 　 　　 　Discord user in strawpage ! (also my user here)　 　<img width="73" height="68" alt="averythemayo" src="https://github.com/user-attachments/assets/1f6af7fa-b47e-4408-a09e-9795c5055868" />
 
 
-![Cipher_Honkai star rail](https://github.com/user-attachments/assets/c4a3b670-807a-42fd-97b7-e5813815d9b8)
+
+<img width="73" height="68" alt="d3rl0rd3" src="https://github.com/user-attachments/assets/8d14c394-a636-45c9-9b82-7a3ef3da4e38" />
+ COUGH check my strawpage to know more about me ★ !! https://s6xur1ty.straw.page/
+
+
+<img width="746" height="414" alt="Yellowking statue minecraf arg" src="https://github.com/user-attachments/assets/a2afec38-995a-45b6-8e4e-3ab6622e5354" />
+
