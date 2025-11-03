@@ -1,16 +1,20 @@
-　　　　　　　, $\LARGE\textcolor{#DEC596}{\textsf{Whatever you do,}}$ $\LARGE\textcolor{#ECE099}{\textsf{at the crossroads,}}$ $\LARGE\textcolor{#CFBA6D}{\textsf{DON'T TURN LEFT.}}$
-　　　　　　　　　　<img width="739" height="421" alt="yellow arg" src="https://github.com/user-attachments/assets/b06ef950-8b07-40ad-81e3-0111db9b3401" />
+　　　　　　　　　　　　　　　, $\small\textcolor{#a7d3fb}{\textsf{Cyrene was...}}$ $\LARGE\textcolor{#ffa5e5}{\textsf{DECIEVED..?}}$
+　　　　　　　　　![Honkai_ Star Rail banner _ Cyrene (2)](https://github.com/user-attachments/assets/94663676-4205-4408-990b-c4e9c1048b63)
 
 
 
 
- I am hoyoverse BIGGEST fan 　 　　　　✧ 　 　　 　Discord user in strawpage ! (also my user here)　 　<img width="73" height="68" alt="averythemayo" src="https://github.com/user-attachments/assets/1f6af7fa-b47e-4408-a09e-9795c5055868" />
+
+ I am hoyoverse BIGGEST fan 　 　　　　✧ 　 　　 　Discord user in strawpage ! (also my user here)　 　<img width="73" height="68" alt="cyrene ! (1)" src="https://github.com/user-attachments/assets/cd29a701-ce1a-4a7a-837e-d31cbe705fa5" />
 
 
 
-<img width="73" height="68" alt="d3rl0rd3" src="https://github.com/user-attachments/assets/8d14c394-a636-45c9-9b82-7a3ef3da4e38" />
+
+<img width="73" height="68" alt="Cyrene !!" src="https://github.com/user-attachments/assets/0962a024-a334-429f-81bb-4e0160f774b7" />
+
  COUGH check my strawpage to know more about me ★ !! https://s6xur1ty.straw.page/
 
 
-<img width="746" height="414" alt="Yellowking statue minecraf arg" src="https://github.com/user-attachments/assets/a2afec38-995a-45b6-8e4e-3ab6622e5354" />
+![undefined (1)](https://github.com/user-attachments/assets/1832bff2-ed1e-47e5-b8b6-e15ac5090ea9)
+
 
