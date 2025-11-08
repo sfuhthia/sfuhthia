@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　, $\small\textcolor{#a7d3fb}{\textsf{Cyrene was...}}$ $\LARGE\textcolor{#ffa5e5}{\textsf{DECIEVED..?}}$
+　　　　　　　　　　　　　　　 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=100&color=D491F7&background=5BF0FF10&center=true&vCenter=true&width=435&lines=This+will+be+a+romantic+story+like..;none+that+has+come+before.;You+think+so+too%2C;right%3F)](https://git.io/typing-svg)
 　　　　　　　　　![Honkai_ Star Rail banner _ Cyrene (2)](https://github.com/user-attachments/assets/94663676-4205-4408-990b-c4e9c1048b63)
 
 
@@ -15,6 +15,7 @@
  COUGH check my strawpage to know more about me ★ !! https://s6xur1ty.straw.page/
 
 
-![undefined (1)](https://github.com/user-attachments/assets/1832bff2-ed1e-47e5-b8b6-e15ac5090ea9)
+![log in or sign up](https://github.com/user-attachments/assets/09927455-df7e-4153-a254-0c430bc72804)
+
 
 
