@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=100&color=D491F7&background=5BF0FF10&center=true&vCenter=true&width=435&lines=This+will+be+a+romantic+story+like..;none+that+has+come+before.;You+think+so+too%2C;right%3F)](https://git.io/typing-svg)
+　　　　　　　　　　　　　　　 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=500&color=D491F7&background=5BF0FF10&center=true&vCenter=true&width=435&lines=This+will+be+a+romantic+story+like..;none+that+has+come+before.;You+think+so+too%2C;right%3F)](https://git.io/typing-svg)
 　　　　　　　　　![Honkai_ Star Rail banner _ Cyrene (2)](https://github.com/user-attachments/assets/94663676-4205-4408-990b-c4e9c1048b63)
 
 
