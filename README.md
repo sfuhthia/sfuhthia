@@ -12,7 +12,7 @@
 
 <img width="73" height="68" alt="Cyrene !!" src="https://github.com/user-attachments/assets/0962a024-a334-429f-81bb-4e0160f774b7" />
 
- COUGH check my strawpage to know more about me ★ !! https://s9xur1ty.straw.page/
+ COUGH check my strawpage to know more about me ★ !! https://sfuhthia.straw.page/
 
 
 ![log in or sign up](https://github.com/user-attachments/assets/09927455-df7e-4153-a254-0c430bc72804)
