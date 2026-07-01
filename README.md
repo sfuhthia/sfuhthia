@@ -17,7 +17,7 @@
 <img width="73" height="68" alt="mizuki chibi" src="https://github.com/user-attachments/assets/c88f6acd-9c6c-4a71-9747-535629037124" />
 
 
- Check out my strawpage to know more about me ★ !! https://k4misama.straw.page/
+ Check out my strawpage to know more about me ★ !! https://bloomingflwr.straw.page/
 
 , 　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Architects+Daughter&pause=1000&color=F7BDD9&background=FFCEF700&center=true&vCenter=true&width=435&lines=I'm+gonna+cause+you+a+lot+of+trouble...!;I+might+end+up+having+really+bad+days...;But+I+wanna+stay...!;I+wanna+keep+belonging...!;I+want+us+to+stay+friends...!)](https://git.io/typing-svg)
 
